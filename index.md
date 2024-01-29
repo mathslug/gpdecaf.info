@@ -4,11 +4,11 @@ This is a list of places in Greenpoint, Brooklyn that I can personally attest ha
 
 If you want to add to this list, [open a PR!](https://github.com/mathslug/gpdecaf.info/tree/main).
 
-# Peter Pan
+## Peter Pan
 
 Brew Decaf here is cheap (under $2) and good. It's good, extremely down-the-middle American morning Joe.
 
-# Paloma
+## Paloma
 
 Decaf espresso only. The highest quality decaf espresso drinks, artisan beans.
 
