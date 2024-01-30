@@ -11,3 +11,7 @@ Brew Decaf here is cheap (under $2) and good. It's solid, extremely down-the-mid
 ## Paloma
 
 Decaf espresso only. The highest quality decaf espresso drinks made from artisan beans.
+
+### Three Decker Diner
+
+They usually do not have decaf, but sometimes one may get lucky and find they have a pot on. The decaf tends to be a little gritty-tasting.
