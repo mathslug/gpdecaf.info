@@ -12,6 +12,10 @@ Brew Decaf here is cheap (under $2) and good. It's solid, extremely down-the-mid
 
 Decaf espresso only. The highest quality decaf espresso drinks made from artisan beans.
 
-### Three Decker Diner
+## Three Decker Diner
 
 They usually do not have decaf, but sometimes one may get lucky and find they have a pot on. The decaf tends to be a little gritty-tasting.
+
+## Odd Fox
+
+Decaf espresso available. I had a decaf cortado that was solid. it had a nutty flavor with just a hint of sour. I have been conditioned to identify this taste as "good coffee taste".
