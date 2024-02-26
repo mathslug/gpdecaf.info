@@ -6,7 +6,7 @@ If you want to add to this list, [open a PR!](https://github.com/mathslug/gpdeca
 
 ## Peter Pan
 
-Brew Decaf here is cheap (under $2) and good. It's solid, extremely down-the-middle American morning Joe.
+Brew decaf here is cheap (under $2) and good. It's solid, extremely down-the-middle American morning Joe.
 
 ## Paloma
 
@@ -18,4 +18,4 @@ They usually do not have decaf, but sometimes one may get lucky and find they ha
 
 ## Odd Fox
 
-Decaf espresso available. I had a decaf cortado that was solid. It had a nutty flavor with just a hint of sour. I have been conditioned to identify this taste as "good coffee taste".
+Decaf espresso available. I had a decaf cortado that was yummy. It had a nutty flavor with just a hint of sour. I have been conditioned to identify this taste as "good coffee taste".
