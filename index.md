@@ -19,3 +19,7 @@ They usually do not have decaf, but sometimes one may get lucky and find they ha
 ## Odd Fox
 
 Decaf espresso available. I had a decaf cortado that was yummy. It had a nutty flavor with just a hint of sour. I have been conditioned to identify this taste as "good coffee taste".
+
+## Café Mogador
+
+Technically in Williamsburg, this spacious Moroccan spot serves somewhat watery decaf espresso.
