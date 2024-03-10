@@ -23,3 +23,8 @@ Decaf espresso available. I had a decaf cortado that was yummy. It had a nutty f
 ## Café Mogador
 
 Technically in Williamsburg, this spacious Moroccan spot serves somewhat watery decaf espresso.
+
+## Greta
+
+This very cute and small café space has decaf espresso in the normal-good range, but more importantly, it's the only place on the list that has real substantial food
+options as well.
