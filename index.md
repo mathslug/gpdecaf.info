@@ -20,11 +20,11 @@ They usually do not have decaf, but sometimes one may get lucky and find they ha
 
 Decaf espresso available. I had a decaf cortado that was yummy. It had a nutty flavor with just a hint of sour. I have been conditioned to identify this taste as "good coffee taste".
 
-## Café Mogador
+## Cafe Mogador
 
 Technically in Williamsburg, this spacious Moroccan spot serves somewhat watery decaf espresso.
 
 ## Greta
 
-This very cute and small café space has decaf espresso in the normal-good range, but more importantly, it's the only place on the list that has real substantial food
+This very cute and small cafe space has decaf espresso in the normal-good range, but more importantly, it's the only place on the list that has real substantial food
 options as well.
