@@ -28,3 +28,7 @@ Technically in Williamsburg, this spacious Moroccan spot serves somewhat watery 
 
 This very cute and small cafe space has decaf espresso in the normal-good range, but more importantly, it's the only place on the list that has real substantial food
 options as well.
+
+## Charlotte Patisserie
+
+Excellent vibes, good food, and decaf espresso. Somewhat expensive, even for Greenpoint.
