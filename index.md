@@ -32,3 +32,7 @@ options as well.
 ## Charlotte Patisserie
 
 Excellent vibes, good food, and decaf espresso. Somewhat expensive, even for Greenpoint.
+
+## Egg Shop
+
+Regular brew decaf! So good! Yessssssssss. Wonderful sour notes.
